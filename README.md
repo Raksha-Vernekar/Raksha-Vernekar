@@ -1,0 +1,2 @@
+- Hey! I’m @Raksha-Vernekar
+- I’m interested in Problem Solving, Data Science ,Android Mobile Application Development and Artificial Intelligence
